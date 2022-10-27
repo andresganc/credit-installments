@@ -1,2 +1,2 @@
-# CURSO-Photoshop
-Curso NC de Photoshop
+
+# Credit Installments
